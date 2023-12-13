@@ -1,2 +1,2 @@
 # Mypersonalwebsite
-web site About okeke Andrew c. skills
+web site about Okeke Andrew c. skills
